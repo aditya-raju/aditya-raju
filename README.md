@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aditya-raju
-- 👀 I’m interested in ... designing developing and marketing tools and experiences
+- 👀 I’m interested in making tools and experiences
 - 🌱 I’m currently learning ... to app design developing and marketing process
 - 💞️ I’m looking to collaborate on ... nothing at the moment
 - 📫 How to reach me ... you can't at the moment
